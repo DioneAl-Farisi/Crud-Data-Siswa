@@ -16,5 +16,5 @@ Di buat oleh:
 
 **Sosmed:** 
 - [Instagram](https://Instagram.com/dionealfarisii)
-- [Email](ardionefarisi1322@gmail.com)
+- [Email](mailto:ardionefarisi1322@gmail.com)
 
